@@ -22,6 +22,8 @@
  *Cel:* 6681038093
  
  *Mail:* tomasmenleon@gmail.com
+ 
+> [Linkedin](https://www.linkedin.com/in/tom%C3%A1s-m%C3%A9ndez-a687a9113/)
 
 ## Ubicación
 ![foto](https://www.google.com/maps/vt/data=c9WbiDQDCRGp4D74icqqhHA10exfzBSPnUlRR_0x3BNUjxs4I-JGCRS8mkQWufCV8_m7eM0r0cAf27qPXZULNS8566txJFf6erwRbWu1iaHRTIMjBJVTXL-jHgvk2ejpow8sWMo6rJATSMr1c-WCKoS1erGW4SFb8KaV9UqayA88eaEELO-lZML6_4LS_7w5auYVtwL2tUXIN1ZQzZ_2FQ69b6Vf6rZLFWCaiIAIOQFZzZD7uJqP198)
